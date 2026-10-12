@@ -1,2 +1,2 @@
 hey i am into anything a human can learn 
-![hippo]([https://media3.giphy.com/media/aUovxH8Vf9qDu/giphy.gif](https://itunes.apple.com/app/apple-store/id917932200?pt=39040802&ct=Media1GIFV2&mt=8))
+![hippo](https://media.giphy.com/media/v1.Y2lkPWVjZjA1ZTQ3aDFmZGRxZWJ4Y3ZjZ25zOG4zZzRwbDQxcGJmd2JuN202NTl6NDRlNyZlcD12MV9naWZzX3RyZW5kaW5nJmN0PWc/NAdEYIRFMCBhMGkXSq/giphy.gif)
